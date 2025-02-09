@@ -1,1 +1,5 @@
 ![Ekran görüntüsü 2025-02-09 200522](https://github.com/user-attachments/assets/1a295ba2-4ab6-4fc8-be9e-1dbb36f06d52)
+![Ekran görüntüsü 2025-02-09 200536](https://github.com/user-attachments/assets/691e9f7a-f6b9-4ce0-a2ef-e97ac79d9dcf)
+![Ekran görüntüsü 2025-02-09 200627](https://github.com/user-attachments/assets/cbf5339c-520e-4435-9806-7d16faf143f0)
+![Ekran görüntüsü 2025-02-09 200419](https://github.com/user-attachments/assets/3afa8655-b990-4306-a341-e028b85bbe5e)
+![Ekran görüntüsü 2025-02-09 200645](https://github.com/user-attachments/assets/3a072059-b662-4330-8831-2148f9dd1281)
